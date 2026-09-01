@@ -1,16 +1,13 @@
-## Hi there 👋
+![Profile views](https://komarev.com/ghpvc/?username=HoroNekko&style=flat-square&label=❃)
 
-<!--
-**HoroNekko/HoroNekko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+༺Tonya/Valen ⋆⋇18 ⋇⋆he/him they/them she/her⋆⋇　⋇⋆Genderfluid ⋇⋆Asexual ⋇⋆Pansexual
 
-Here are some ideas to get you started:
+Int please I love to socialize. I don't really go out of my way to int first. But if you're shy to int directly you can sign my ata and tell me there. 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Cuddle or cudcomf freely even if not in the same fandom or non oomf unless I have my status on busy (⛔) 
+
+DO NOT COPY!! Do not copy or take inspo without my knowledge. Me or any of my friends. 
+
+Most important things about me are on my [Carrd](https://valentonya.carrd.co/) 
+
+!! This is still under construction!! 
