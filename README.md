@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=HoroNekko&style=flat-square&label=❃)
+![Profile views](https://komarev.com/ghpvc/?username=HoroNekko&style=flat-square&label=✧༺♥༻✧)
 
 ༺Tonya/Valen ⋆⋇18 ⋇⋆he/him they/them she/her⋆⋇　⋇⋆Genderfluid ⋇⋆Asexual ⋇⋆Pansexual
 
