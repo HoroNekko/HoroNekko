@@ -8,6 +8,6 @@ Cuddle or cudcomf freely even if not in the same fandom or non oomf unless I hav
 
 DO NOT COPY!! Do not copy or take inspo without my knowledge. Me or any of my friends. 
 
-Most important things about me are on my [Carrd](https://valentonya.carrd.co/) 
+Most important things about me are on my [Carrd](https://valentonyaa.carrd.co/#) 
 
 !! This is still under construction!! 
