@@ -13,7 +13,7 @@ Cuddle or cudcomf freely even if not in the same fandom or non oomf unless I hav
 DO NOT COPY!! Do not copy or take inspo without my knowledge. Me or any of my friends. 
 
 **⚠️Dottre lovers strictly DNI⚠️**
-<subsub>unless oomfs</subsub>
+<sub>unless oomfs???</sub>
       
 **I HATE do@#re and often block any cos I see of 𝚑𝚒𝚖 and do not approach me as a cos of him**
 
