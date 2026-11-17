@@ -10,7 +10,7 @@ Int/bmf please I love to socialize. I don't really go out of my way to int first
 Cuddle or cudcomf freely even if not in the same fandom or non oomf unless I have my status on busy (⛔) 
 
 
-DO NOT COPY!! Do not copy or take inspo without my knowledge. Me or any of my friends. 
+DO NOT COPY!! Do not copy or take inspo without my knowledge. From me or any of my friends. 
 
 **⚠️Dottre lovers strictly DNI⚠️**
 <sub>unless oomfs???</sub>
