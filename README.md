@@ -1,4 +1,4 @@
-![Profile views](https://komarev.com/ghpvc/?username=HoroNekko&style=flat-square&label=Sunshines)
+![Profile views](https://komarev.com/ghpvc/?username=HoroNekko&style=flat-square&label=❃.✮:▹Lotuses◃:✮.❃)
 
 
 ༺Tonya/Valen ⋆⋇18 ⋇⋆he/him they/them she/her⋆⋇　⋇⋆Genderfluid ⋇⋆Asexual ⋇⋆Pansexual
@@ -15,10 +15,10 @@ DO NOT COPY!! Do not copy or take inspo without my knowledge. From me or any of 
 **⚠️Dottre lovers strictly DNI⚠️**
 <sub>unless oomfs???</sub>
       
-**I HATE do@#re and often block any cos I see of 𝚑𝚒𝚖 and do not approach me as a cos of him**
+**I HATE do@#re and often hide/block freely of cos I see of 𝚑𝚒𝚖**
 
 
-**DNI Wanderer yume doubles I hide freely**
+**DNI Wanderer yume doubles I hide/block freely**
 
 
 More info about me are on my [Carrd](https://valentonyaa.carrd.co/#) 
