@@ -12,11 +12,10 @@ Cuddle or cudcomf freely even if not in the same fandom or non oomf unless I hav
 
 DO NOT COPY!! Do not copy or take inspo without my knowledge. Me or any of my friends. 
 
-**⚠️Dottre lovers strictly DNI⚠️
-
-      𝚞𝚗𝚕𝚎𝚜𝚜 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚒𝚐 𝚝𝚑𝚘
+**⚠️Dottre lovers strictly DNI⚠️**
+  𝚞𝚗𝚕𝚎𝚜𝚜 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚒𝚐 𝚝𝚑𝚘
       
-I HATE do@#re and often block any cos I see of 𝚑𝚒𝚖 and do not approach me as a cos of him**
+**I HATE do@#re and often block any cos I see of 𝚑𝚒𝚖 and do not approach me as a cos of him**
 
 
 **DNI Wanderer yume doubles I hide freely**
